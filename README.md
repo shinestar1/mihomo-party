@@ -1,1 +1,1 @@
-# mihomo-party--
+# mihomo-party
